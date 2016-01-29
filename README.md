@@ -1,0 +1,1 @@
+# arquivos_wp_padrao
